@@ -1,3 +1,0 @@
-# Meet Chris Grivas
-
-TBD
